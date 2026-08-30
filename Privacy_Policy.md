@@ -1,3 +1,12 @@
+
+
+
+
+# Privacy Policy for JLPT5 Reading App
+
+**Effective date: August 30, 2026**
+
+...
 Privacy Policy for JLPT5 Reading App
 Effective date: August 30, 2026
 
